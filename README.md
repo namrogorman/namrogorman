@@ -2,8 +2,8 @@
 - 👀 I’m interested in PC building
 - 🌱 I’m currently learning crypto mining
 - 💞️ I’m looking to collaborate on computer stuff
-- 📫 How to reach me fly to Hawaii and see the lava
-- 😄 Pronouns: I do not do pronouns, I am a Republican
+- 📫 How to reach me, fly to Hawaii and see the lava
+- 😄 Pronouns: I do not do pronouns, I believe that there are only two genders determined at birth.
 - ⚡ Fun fact: I love everything Trump is doing to make America great again
 
 <!---
